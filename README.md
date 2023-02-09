@@ -1,2 +1,2 @@
 # Spelman-Morehouse DRP Spring 2023
-## Cobe Lawson-Chavanu, Marvin Higgins
+## Kobe Lawson-Chavanu, Marlin Figgins
